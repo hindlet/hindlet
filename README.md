@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hindlet
-- 👀 I’m interested in your mother
+- 👀 I’m interested in video games and simulation programming
 - 🌱 I’m currently learning the best way to become a member of the 05 council
 - 💞️ I’m looking to collaborate on sacrificial events (you would be the sacrifice :))
 - 📫 How to reach me: Do not please and thank you
